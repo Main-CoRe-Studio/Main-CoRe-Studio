@@ -4,4 +4,4 @@
 
 Maybe there is nothing here.
 
-Get more information at [here](https://x7992@outlook.com).
+Get more information at [here](mailto:x7992@outlook.com).
